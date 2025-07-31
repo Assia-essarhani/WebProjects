@@ -13,3 +13,4 @@ https://restaurant-alchimiste.fr/  <br>
 https://coach-sisters.fr/   <br>
 https://detatoo.fr/   <br>
 https://hotel.weblinking.fr/   <br>
+https://www.newtech.ma/ <br>
